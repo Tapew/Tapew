@@ -5,8 +5,9 @@
 자세한 문의는 트위터(@Furry_Tapew)에 연락주세요!
 
 
+
 Hello! I'm Tapew, interested in Protogen!
 
 Please note that the content posted is related to a simple program or protogen.
 
-For more information, please contact Twitter (@Fury_Tapew)!
+For more information, please contact Twitter (@Furry_Tapew)!
